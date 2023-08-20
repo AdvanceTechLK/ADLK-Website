@@ -3,4 +3,4 @@
 
 
 
-Click Here To Visit Our Site :-https://advancetechlk.github.io/Adavnce-Tech-LK/
+Click Here To Visit Our Site :-https://advancetechlk.github.io/Adavance-Tech-LK/
